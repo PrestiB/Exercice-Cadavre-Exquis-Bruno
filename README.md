@@ -10,4 +10,4 @@ Vous serez très surpris de la réponse. Lisez plutôt...
 
 Comment utiliser le canard ? alors, il ne faut jamais perdre le canard, sinon on risque
 de ne jamais avoir accès à l'aide de quelqu'un, ensuite quand on est vraiment désésperé, on 
-tape d'un coup sur le canard et on observe la reaction de vos collègues.
+tape d'un coup sur le canard e"t on observe la reaction de vos collègues.
